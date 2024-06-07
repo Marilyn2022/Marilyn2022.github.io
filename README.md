@@ -2,4 +2,4 @@
 
 个人博客演示
 
-更多内容访问：https://www.tsq360.cf
+更多内容访问：https://www.205066.xyz
